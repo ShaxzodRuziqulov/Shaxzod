@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @ShaxzodR
+- 👋 Hi, I’m Shaxzod Ruziqulov
 - 👀 I’m interested in games
 - 📫 How to reach me janobprizident@gmail.com
 
